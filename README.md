@@ -1,1 +1,1 @@
-![プロフィール](https://github.com/user-attachments/assets/90c771d7-a0c4-44fb-9420-1fe43c29c260)
+![画像12](https://github.com/user-attachments/assets/402faed8-8f97-45f1-a3b2-3e439c1de70c)
